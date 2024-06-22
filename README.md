@@ -1,0 +1,5 @@
+![1](https://github.com/ilaydacengizhan/WEB-PROJECT/assets/90273136/f9bc8144-65c0-47ee-9a7a-93b46b6a29ed)
+![2](https://github.com/ilaydacengizhan/WEB-PROJECT/assets/90273136/70fe8739-7e36-44f8-93df-06ad8d9d1cde)
+![3](https://github.com/ilaydacengizhan/WEB-PROJECT/assets/90273136/f3944fe7-e992-43e1-8d18-395a4aa0a97f)
+![4](https://github.com/ilaydacengizhan/WEB-PROJECT/assets/90273136/49dc7427-1070-433e-960a-2ecd42511613)
+![5](https://github.com/ilaydacengizhan/WEB-PROJECT/assets/90273136/ad73da6e-cde0-4cf4-8948-303018b0ed34)
